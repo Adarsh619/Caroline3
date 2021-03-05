@@ -1,1 +1,1 @@
-Characters and their insights(sampl).
+Some of the characters and their insights(sample).
